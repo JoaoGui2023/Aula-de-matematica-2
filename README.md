@@ -1,1 +1,0 @@
-# Matematica-2
